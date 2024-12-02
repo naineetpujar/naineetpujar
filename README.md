@@ -19,13 +19,8 @@ I'm a passionate learner diving into the realms of Machine Learning and Artifici
  📫 Connect with Me
 - **Email:** [naineet574@gmail.com](mailto:naineet574@gmail.com)
 
-😄 Pronouns
-- He/Him
-
 Fun Fact
 I love blending creativity with logic, whether it’s in a high-speed game, a chess match, or crafting video content. Life’s a mix of strategy and artistry for me!
-
----
 
 Thanks for visiting! Looking forward to connecting with like-minded enthusiasts.
 
